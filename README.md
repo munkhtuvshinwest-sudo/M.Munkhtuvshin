@@ -1,4 +1,4 @@
-# Hi, I'm Bob 👋
+# Hi, I'm Munkhtuvshin 👋
 
 I'm an aspiring civil engineer from Mongolia with an interest in cold-region infrastructure, geotechnical engineering, and sustainable urban development.
 
